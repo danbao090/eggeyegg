@@ -1,1 +1,0 @@
-Temporary solution - eggeyegg.no
